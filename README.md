@@ -1,0 +1,2 @@
+# mydb
+I want suicide
